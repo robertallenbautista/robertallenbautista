@@ -33,3 +33,8 @@ I write plain-English guides on small business taxes, bookkeeping, self-employme
 - YouTube: [@robertallenbautista](https://www.youtube.com/@robertallenbautista)
 
 _General information, not tax advice for your specific situation._
+
+
+## More from Robert
+
+[All links (Linktree)](https://linktr.ee/robertallenbautista) · [2026 Small Business Tax Checklist (Scribd)](https://www.scribd.com/document/1097111271/) · [What Delivery Drivers Wish They Knew Before January (Medium)](https://robertallenbautista.medium.com/what-delivery-drivers-wish-they-knew-before-january-198386e4b32c) · [Stop Skipping the Home Office Deduction (LinkedIn)](https://www.linkedin.com/pulse/stop-skipping-home-office-deduction-robert-bautista-31eec/)
