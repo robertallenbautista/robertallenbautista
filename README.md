@@ -26,7 +26,7 @@ I write plain-English guides on small business taxes, bookkeeping, self-employme
 
 - Website: [robertallenbautista.wixsite.com/taxpro](https://robertallenbautista.wixsite.com/taxpro)
 - Blog: [Kansas City Tax Guides](https://robertallenbautista.blogspot.com/)
-- LinkedIn: [robert-bautista-tax](https://www.linkedin.com/in/robert-bautista-tax/)
+- LinkedIn: [robertallenbautista](https://www.linkedin.com/in/robertallenbautista/)
 - Medium: [@robertallenbautista](https://robertallenbautista.medium.com/)
 - Substack: [Small Business Tax Notes](https://robertallenbautista.substack.com/)
 - Quora: [Robert Allen Bautista](https://www.quora.com/profile/Robert-Allen-Bautista)
