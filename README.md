@@ -1,6 +1,6 @@
 # Robert Allen Bautista
 
-**Kansas City tax preparer and accountant, CPA candidate and author.** PwC alum (IT audit and real estate tax), former Chief Accountant at a CPA firm, M.S. in Accounting. English / Español.
+**Kansas City tax educator, CPA candidate and author.** PwC alum (IT audit and real estate tax), former Chief Accountant at a CPA firm, M.S. in Accounting. English / Español.
 
 I write plain-English guides on small business taxes, self-employment, bookkeeping basics and IRS notices.
 
