@@ -2,7 +2,7 @@
 
 **Kansas City tax educator, CPA candidate and author.** PwC alum (IT audit and real estate tax), former Chief Accountant at a CPA firm, M.S. in Accounting. English / Español.
 
-As quoted in [Homes.com](https://www.homes.com/learn/how-do-gift-funds-work-when-buying-a-home/) and [Stonebridge Herald](https://stonebridgeherald.com/article/early-withdrawal-from-401k-penalties/).
+As quoted in [Homes.com](https://www.homes.com/learn/how-do-gift-funds-work-when-buying-a-home/), [Stonebridge Herald](https://stonebridgeherald.com/article/early-withdrawal-from-401k-penalties/) & [Gigs Magazine](https://gigsmagazine.com/qa/7-tax-deductions-that-could-significantly-reduce-your-burden-as-a-gig-worker/).
 
 I write plain-English guides on small business taxes, self-employment, bookkeeping basics and IRS notices.
 
